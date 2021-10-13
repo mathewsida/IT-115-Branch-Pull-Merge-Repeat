@@ -16,3 +16,5 @@ Demonic figures of randomly congealed body parts torn rotting corpses with bones
 Then Awakens somehow without his left arm, only with a Mace with a strange mark as he realizes it is the mark of the Blackfang. And hears a strange dark voice emitting from the Weapon that he can’t translate at first.. Then heart-wrenching screams followed... “Save us Ner’Zhul! “Avenge us!” 
 
 Ner'Zhuls favorite food is Thit Kha
+
+Evan smells nice
