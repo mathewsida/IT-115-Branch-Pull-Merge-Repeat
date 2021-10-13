@@ -14,3 +14,5 @@ Complete and utter darkness fills the air. Heart-wrenching cries and screaming h
 Demonic figures of randomly congealed body parts torn rotting corpses with bones and spines sticking out on every end. Envelope the guild biting off faces, stabbing the Clan with its protruding bones. Ner’Zhul frozen in fear watches as Tesó does his best to protect his friend. See’s him become ripped apart and Ner’Zhul looks up as he hears the sound of ripping flesh and the screams of his Allies. Catches a Quick glimpse unto the Peak of the cliff where Áruló resides. And only sees a Black Silhouette in complete darkness with Gleaming Purple eyes that he would never forget and blacks out. 
 
 Then Awakens somehow without his left arm, only with a Mace with a strange mark as he realizes it is the mark of the Blackfang. And hears a strange dark voice emitting from the Weapon that he can’t translate at first.. Then heart-wrenching screams followed... “Save us Ner’Zhul! “Avenge us!” 
+
+Ner'Zhuls favorite food is Thit Kha
